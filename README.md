@@ -1,0 +1,2 @@
+# premium-top-bar-hive-001-top-bar-hive-building-comb-g
+Tired of digging through messy folders and bookmarks for your top bar hive build? Get a dedicated Notion workspace that organizes every step, from lumber cuts to comb management, in one place.  This template turns your hive building and comb management into a seamless, guided workshop inside Notion. Unlike scattered PDFs or videos, it provides a st
